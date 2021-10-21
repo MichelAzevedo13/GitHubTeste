@@ -1,7 +1,9 @@
 GitHub
 BotEmProdução
 @michelazeved
-;wq
-:w
-:wq
 
+Instagram
+
+
+Siga para mais novidades
+;)
